@@ -1,1 +1,0 @@
-# gsma-ar-projektjt702
